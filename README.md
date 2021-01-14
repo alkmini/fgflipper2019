@@ -1,3 +1,3 @@
 # fgflipper2019
 
-Following a lecture.
+September 2019 - Following a lecture.
